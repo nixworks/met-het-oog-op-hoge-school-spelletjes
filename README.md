@@ -1,1 +1,1 @@
-# met-het-oog-op-hoge-school-spelletjes
+# met het oog op hoge school spelletjes
